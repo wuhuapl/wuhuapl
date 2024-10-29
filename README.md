@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @wuhuapl
+- 👀 I’m interested in a good environment
+- 🌱 I’m currently learning Java Python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me pl711@qq.com
+- 😄 Pronouns: Rookie
+- ⚡ Fun fact: ...
